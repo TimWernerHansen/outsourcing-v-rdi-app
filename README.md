@@ -1,0 +1,1 @@
+# outsourcing-v-rdi-app
